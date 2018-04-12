@@ -9,6 +9,9 @@
     
 交通：
 ```
+# 印度10大不可思議的大小事 ❚ 超級旅行者
+[拉肚子](https://youtu.be/yxGm7JG07FU?t=26m33s)
+
 
 # useful reference
 * [就是要印度](https://yaoindia.com/archives/19730)
