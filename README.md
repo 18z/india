@@ -9,3 +9,7 @@
     
 交通：
 ```
+
+# useful reference
+[就是要印度](https://yaoindia.com/archives/19730)
+[印度神尤遊印度](https://www.facebook.com/yoyoindia2013/?hc_ref=ARTKaJT-3ESw1_JCXefqP6gtDNt5xc9a_yNnx3ZU4x0YQeHnF-7SdjGQsXfu3FZ4RY4&fref=nf)
