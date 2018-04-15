@@ -39,6 +39,8 @@
        4. 南印廁所乾淨到不可思議。南印人民水準高，較不會讓人覺得不舒服。
 ```
 
+[背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
+
 # 印度10大不可思議的大小事 ❚ 超級旅行者
 [拉肚子](https://youtu.be/yxGm7JG07FU?t=26m33s)
 
