@@ -39,6 +39,16 @@
        4. 南印廁所乾淨到不可思議。南印人民水準高，較不會讓人覺得不舒服。
 ```
 
+[Scrumptious INDIAN STREET FOOD Tour + SARNATH, The BIRTHPLACE of BUDDHISM | Varanasi, India](https://www.youtube.com/watch?v=Ez0Mh6nfmGc)
+
+```
+注意事項：
+住宿：
+交通：
+飲食：
+參觀焦點：
+```
+
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
 # 印度10大不可思議的大小事 ❚ 超級旅行者
