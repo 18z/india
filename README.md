@@ -87,3 +87,4 @@
 * [就是要印度](https://yaoindia.com/archives/19730)
 * [印度神尤遊印度](https://www.facebook.com/yoyoindia2013/?hc_ref=ARTKaJT-3ESw1_JCXefqP6gtDNt5xc9a_yNnx3ZU4x0YQeHnF-7SdjGQsXfu3FZ4RY4&fref=nf)
 * [印度瘋狂 112 天](https://www.youtube.com/watch?v=5jADdZEDt4I&list=PLCh_VulSoFzixrEYvtOQcaicojx02Oy-G&t=0s&index=2)
+* [印度 sim 卡](https://www.aerobile.com/eshop/tw/%E5%8D%B0%E5%BA%A6-%E5%A4%A9-%E9%AB%98%E9%80%9F%E4%B8%8A%E7%B6%B2%E5%90%83%E5%88%B0%E9%A3%BD-sim%E5%8D%A1-%28a16%29-p-513.html)
