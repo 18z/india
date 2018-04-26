@@ -51,7 +51,7 @@
 4. 遊客挺多，久美子之家巷子口出來，往右邊看，冒煙處似乎就是火葬處。
 
 注意事項：
-住宿：
+住宿：kumiko house (https://www.facebook.com/notes/%E4%B8%96%E7%95%8C%E9%80%B2%E8%A1%8C%E4%B8%AD-the-ongoing-world/%E5%8D%B0%E5%BA%A6%E9%82%A3%E5%80%8B%E5%86%AC%E5%A4%A9%E9%82%A3%E4%BA%9B%E6%B2%92%E6%9C%89%E7%86%B1%E6%B0%B4%E7%9A%84%E5%8D%B0%E5%BA%A6%E6%97%85%E7%A4%BE/1015432245187132/)
 交通：
 飲食：
 參觀焦點：
