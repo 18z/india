@@ -96,3 +96,4 @@
 * [印度瘋狂 112 天](https://www.youtube.com/watch?v=5jADdZEDt4I&list=PLCh_VulSoFzixrEYvtOQcaicojx02Oy-G&t=0s&index=2)
 * [印度 sim 卡](https://www.aerobile.com/eshop/tw/%E5%8D%B0%E5%BA%A6-%E5%A4%A9-%E9%AB%98%E9%80%9F%E4%B8%8A%E7%B6%B2%E5%90%83%E5%88%B0%E9%A3%BD-sim%E5%8D%A1-%28a16%29-p-513.html)
 * [印度搭 uber](https://www.backpackers.com.tw/forum/showthread.php?t=1940701)
+* [【臺灣人的印度故事】20180422 - 看見印度](https://www.youtube.com/watch?v=BygH-rRqFKU&feature=youtu.be)
