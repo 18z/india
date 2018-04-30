@@ -71,6 +71,11 @@
 參觀焦點：
 ```
 
+[【最真实的印度vlog】Day26-恒河水浪打浪 焚尸场中尸连尸](https://www.youtube.com/watch?v=FgCoJRhckaQ&t=1502s)
+```
+```
+
+
 [跟我們一起搭印度火車 ❚ 超級旅行者](https://www.youtube.com/watch?v=R2960bmc5kE)
 
 ```
