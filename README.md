@@ -71,7 +71,7 @@
 參觀焦點：
 ```
 
-[【最真实的印度vlog】Day26-恒河水浪打浪 焚尸场中尸连尸](https://www.youtube.com/watch?v=FgCoJRhckaQ&t=1502s)
+[【最真实的印度vlog】Day26-恒河水浪打浪 焚尸场中尸连尸](https://youtu.be/FgCoJRhckaQ?t=10m49s)
 ```
 00:00 ~ 05:00
 1. 談論在印度做生意「賣拖鞋」。
