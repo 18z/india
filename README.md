@@ -168,6 +168,8 @@
 2. breakfast (印度人騎機車帶男主出遊)
 3. 02:41 food #1 Malai
 ```
+![malai-1](malai-1.png)
+![malai-2](malai-2.png)
 
 
 
