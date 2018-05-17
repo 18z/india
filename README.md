@@ -162,12 +162,14 @@
 [Scrumptious INDIAN STREET FOOD Tour + SARNATH, The BIRTHPLACE of BUDDHISM | Varanasi, India](https://www.youtube.com/watch?v=Ez0Mh6nfmGc)
 
 ```
-注意事項：
-住宿：
-交通：
-飲食：
-參觀焦點：
+00:00 ~ 02:53
+
+1. 看日出 (a must do) ，以及準備 food tour。
+2. breakfast (印度人騎機車帶男主出遊)
+3. 02:41 food #1 Malai
 ```
+
+
 
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
