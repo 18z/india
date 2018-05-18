@@ -171,7 +171,13 @@
 ![malai-1](malai-1.png)
 ![malai-2](malai-2.png)
 
-
+```
+02:53 ~ 04:40
+食物：Puri Kachori
+```
+![purikachori-1](purikachori-1.png)
+![purikachori-2](purikachori-2.png)
+![purikachori-3](purikachori-3.png)
 
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
