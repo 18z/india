@@ -191,6 +191,9 @@
 # 印度10大不可思議的大小事 ❚ 超級旅行者
 [拉肚子](https://youtu.be/yxGm7JG07FU?t=26m33s)
 
+[【印度vlog】Day27-恒河里没有浮尸，有的是活死人](https://www.youtube.com/watch?v=iCGe6BRRIg8)
+
+
 
 # useful reference
 * [就是要印度](https://yaoindia.com/archives/19730)
