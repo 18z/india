@@ -179,6 +179,13 @@
 ![purikachori-2](purikachori-2.png)
 ![purikachori-3](purikachori-3.png)
 
+```
+04:40 ~ 05:29
+食物：jalebi
+```
+![jalebi-1](jalebi-1.png)
+![jalebi-2](jalebi-2.png)
+
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
 # 印度10大不可思議的大小事 ❚ 超級旅行者
