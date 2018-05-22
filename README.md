@@ -186,6 +186,13 @@
 ![jalebi-1](jalebi-1.png)
 ![jalebi-2](jalebi-2.png)
 
+```
+05:29 ~ 06:17
+食物：Paan
+```
+![paan-1](paan-1.png)
+![paan-2](paan-2.png)
+
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
 # 印度10大不可思議的大小事 ❚ 超級旅行者
