@@ -203,6 +203,20 @@
 5. 導覽感覺非常專業。
 ```
 
+```
+11:17 ~ 15:05
+
+1. 12:06 這尊佛是泰國政府捐贈的。
+2. 作者說，去瓦拉納西後，若對佛教有興趣，鹿野苑大概是一個小時路程，可以去看看。
+3. 食物：golgappas
+```
+
+![golgappas-1](golgappas-1.png)
+![golgappas-2](golgappas-2.png)
+
+
+
+
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
 # 印度10大不可思議的大小事 ❚ 超級旅行者
