@@ -214,6 +214,12 @@
 ![golgappas-1](golgappas-1.png)
 ![golgappas-2](golgappas-2.png)
 
+```
+15:05 ~ 
+食物：Aloo Tikki
+```
+![alootikki](alootikki-1.png)
+![alootikki](alootikki-2.png)
 
 
 
