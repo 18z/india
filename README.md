@@ -215,13 +215,18 @@
 ![golgappas-2](golgappas-2.png)
 
 ```
-15:05 ~ 
+15:05 ~ 15:39
 食物：Aloo Tikki
 ```
 ![alootikki](alootikki-1.png)
 ![alootikki](alootikki-2.png)
 
 
+```
+15:39 ~ 15:55
+![tomatochaat-1.png](tomatochaat-1.png)
+![tomatochaat-2.png](tomatochaat-2.png)
+```
 
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
