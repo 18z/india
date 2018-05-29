@@ -228,6 +228,13 @@
 ![tomatochaat-2.png](tomatochaat-2.png)
 ```
 
+
+```
+15:55 ~ 16:14
+![churamatar-1](churamatar-1.png)
+![churamatar-2](churamatar-2.png)
+```
+
 [背包客棧 - [北印]瓦拉那西(Varanasi)](https://www.backpackers.com.tw/forum/showthread.php?t=3962)
 
 # 印度10大不可思議的大小事 ❚ 超級旅行者
