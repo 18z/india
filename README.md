@@ -264,8 +264,13 @@
 2. 部分大理石還是有污垢，難以清理。
 3. 男主表示：那麼大規模，那麼精緻的細節。
 
-
+25:00 ~ 30:00
+1. 女主拍可愛印度小孩。
+2. 跟印度人要 email，可能是想要寄照片給他們吧？
+3. 男主表示在泰姬瑪哈陵感覺很舒服。
+4. 女主表示，不虛此行！
 ```
+[https://www.youtube.com/watch?v=VKMaAkcbfSg](https://www.youtube.com/watch?v=VKMaAkcbfSg)
 
 [跟我們一起搭印度火車 ❚ 超級旅行者](https://www.youtube.com/watch?v=R2960bmc5kE)
 
