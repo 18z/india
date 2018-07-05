@@ -276,6 +276,11 @@
 3. 赤腳踩大理石地板，超冰！
 4. 講到底層人民非常友善。
 
+35:00 ~ 40:00
+1. 太好拍，拍到一顆電池都快沒電了。
+2. 男主表示很捨不得走。
+3. 先前合照的印度人有 email 了，女主將照片寄給他們。並邀請小孩們拍更多照片。
+4. 小姑娘紗麗非常漂亮
 ```
 [https://www.youtube.com/watch?v=VKMaAkcbfSg](https://www.youtube.com/watch?v=VKMaAkcbfSg)
 
