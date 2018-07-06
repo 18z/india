@@ -281,6 +281,12 @@
 2. 男主表示很捨不得走。
 3. 先前合照的印度人有 email 了，女主將照片寄給他們。並邀請小孩們拍更多照片。
 4. 小姑娘紗麗非常漂亮
+
+40:00 ~ 45:00
+1. 鞋套都穿破了
+2. 背景音樂配上景點影片。
+3. 泰姬瑪哈陵對面的暗紅色建築物超漂亮。
+4. 前面的塔樓正在清洗，男主問能不能爬上去，被拒絕
 ```
 [https://www.youtube.com/watch?v=VKMaAkcbfSg](https://www.youtube.com/watch?v=VKMaAkcbfSg)
 
@@ -292,6 +298,7 @@
        2. 座位有分等級。
        3. 要時時查看時刻表，因為火車可能換月台。
        4. 南印廁所乾淨到不可思議。南印人民水準高，較不會讓人覺得不舒服。
+       5. 試圖行賄爬上去，印度人拒絕XD
 ```
 
 [Scrumptious INDIAN STREET FOOD Tour + SARNATH, The BIRTHPLACE of BUDDHISM | Varanasi, India](https://www.youtube.com/watch?v=Ez0Mh6nfmGc)
