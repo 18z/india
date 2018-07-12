@@ -309,8 +309,13 @@
 3. 賓館的人說這只能進入一次，不知道為何這次可以重複進入。
 4. 遇到學校學生郊遊，再次被要求要合照。
 5. 再次進入時間是下午兩點多，人很多！要早上去！
+
+1:00:00 ~ 1:02:31
+1. 下午泰姬瑪哈陵人真的超多！
+2. 在建築物外面走走繞繞。
+
 ```
-[https://www.youtube.com/watch?v=VKMaAkcbfSg](https://www.youtube.com/watch?v=VKMaAkcbfSg)
+[【印度vlog】Day32.i-我们在阿格拉堡解开了印度婴儿烟熏妆之谜](https://www.youtube.com/watch?v=VKMaAkcbfSg)
 
 [跟我們一起搭印度火車 ❚ 超級旅行者](https://www.youtube.com/watch?v=R2960bmc5kE)
 
